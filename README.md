@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Guytantak
 - 👀 I’m interested in meshtastic and modded radios
 - 🌱 I’m currently learning drums hancrafting
-- 💞️ I’m looking to collaborate on design
-- 📫 How to reach me tabnguy le bihan on fb
+- 💞️ I’m looking to collaborate on design (i'm a professionnal illustator and dataviz)
+- 📫 How to reach me tanguy le bihan on fb
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
